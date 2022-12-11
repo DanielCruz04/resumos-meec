@@ -4,6 +4,7 @@
 
   - Ainda não encontrei as respostas oficiais destes capítulos
   - [Resolução by Rita Mendes](https://drive.google.com/file/d/1UycbNQe-D-eVnkTpQ1xIzzz5U8O0lzaQ/view?usp=sharing)
+  - [Resolução completa da ficha 2](https://drive.google.com/file/d/1LHLzlOMp3N_vLHe4M7DZV22GTcZzNfXu/view?usp=sharing)
 
 - [Capítulo 3](https://drive.google.com/file/d/1DKpKzOmKrAAVbTRfAsDBkJaX22adZPxQ/view?usp=sharing)
 
